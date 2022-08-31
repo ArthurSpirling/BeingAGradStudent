@@ -18,7 +18,7 @@ The number one resource you have in grad school is time.  You have time in a way
 
 5. **...don't waste time worrying about whether they are "smart enough".**
 
-You have been admitted to a top program. Top people in the discipline have decided you are smart enough.  Trust their judgement.  You didn't fool them, and it's not worth a single second of your time worrying about whether you are smart enough to be here, to get a phd, to be an assistant professor etc. No one who matters is thinking about that.  What they *are* thinking about is whether you will work hard for them, show initiative, be professional etc.  Worry about that. A lot.
+You have been admitted to a top program. Top people in the discipline have decided you are smart enough.  Trust their judgement.  You didn't fool them, and it's not worth a single second of your time worrying about whether you are smart enough to be here, to get a PhD, to be an assistant professor etc. No one who matters is thinking about that.  What they *are* thinking about is whether you will work hard for them, show initiative, be professional etc.  Worry about that. A lot.
 
 6. **...listen, and learn "the game".**
 
