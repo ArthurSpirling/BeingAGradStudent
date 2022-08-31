@@ -1,5 +1,4 @@
-September 1, 2022
-
+September 1, 2022\
 Arthur Spirling
 
 # On Being a (Successful) Graduate Student
