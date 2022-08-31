@@ -1,3 +1,6 @@
+September 1, 2022
+Arthur Spirling
+
 # On Being a (Successful) Graduate Student
 
 I am, generally speaking, against advice.  It is typically vague, unactionable or obvious. Sometimes all three.  Especially when unsolicited, its purpose is mostly not to help anyone, except the advice giver.  And for them, it is often narcissism parading as *noblesse oblige*.  The other thing I am against is selecting on the dependent variable. And while it is certainly concerning that everyone who sees that Wald Bomber meme eventually dies, the risk of being ignorant of it is non-trivial too.
