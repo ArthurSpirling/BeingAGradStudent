@@ -2,7 +2,7 @@
 
 - **...combine deference and initiative.**
 
-Here "deference" means being respectful of both the field and the people in it.  You cannot make headway unless you understand what has come before, and work *with* the grain.  This extends to your advisor and their work.  While most students master deference, many never then learn to show "initiative"---by which we mean being entrepreneurial with their projects and resources. Advisors want to "advise", not direct, not cajole, not hand-hold. Good advisees push intellectual boundaries (not professional ones), and are not afraid to innovate, try things and report back.  Good advisees bring output for advisor input.  Something  (anything!) in draft form is a million times better than nothing written. 
+Here "deference" means being respectful of both the field and the people in it.  You cannot make headway unless you understand what has come before, and work *with* the grain.  This extends to your advisor and their work.  While most students master deference, many never then learn to show *initiative*---by which we mean being entrepreneurial with their projects and resources. Advisors want to *advise*, not direct, not cajole, not hand-hold. Good advisees push intellectual boundaries (not professional ones), and are not afraid to innovate, try things and report back.  Good advisees bring output for advisor input.  Something  (anything!) in draft form is a million times better than nothing written. 
 
 - **...understand grad school is a job.**  
 
