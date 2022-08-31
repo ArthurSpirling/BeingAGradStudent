@@ -3,7 +3,7 @@ I am, generally speaking, against advice.  It is typically vague, unactionable o
 And yet, when combined, advice and selection bias can produce magical results.  So it is here, as I elucidate the characteristics that unite *succesful* (interpret how you will) graduate students. 
 
 
-##**Successful grad students...**
+## **Successful grad students...**
 
 1. **...combine deference and initiative.**
 
