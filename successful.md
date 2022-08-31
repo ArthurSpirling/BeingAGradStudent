@@ -6,7 +6,7 @@ Here "deference" means being respectful of both the field and the people in it. 
 
 2. **...understand grad school is a job.**  
 
-For good and bad.  You have rights as an employee, but you also have *responsibilities*. These may not be explicit, but we are talking basic things like being on time for meetings, emailing back when your advisor writes to you, doing your homework, writing your dissertation) etc.  You signed up for this position and though it is (too) lowly paid, it  *is* paid. It is your job right now, and you should do it to the best of your ability.  You should reach out immediately if you cannot do your job, for whatever reason.  Advisors want to help: help them help you.
+For good and bad.  You have rights as an employee, but you also have *responsibilities*. These may not be explicit, but we are talking basic things like being on time for meetings, emailing back when your advisor writes to you, doing your homework, writing your dissertation etc.  You signed up for this position and though it is (too) lowly paid, it  *is* paid. It is your job right now, and you should do it to the best of your ability.  You should reach out immediately if you cannot do your job, for whatever reason.  Advisors want to help: help them help you.
 
 3. **...are optimally stubborn.**
 
