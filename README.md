@@ -10,7 +10,7 @@ And yet, when combined, advice and selection bias can produce magical results.  
 
 ### **Successful grad students...**
 
-1. **...combine deference and initiative.**
+1. **...combine intellectual deference and initiative.**
 
 Here "deference" means being respectful of both the field and the people in it.  You cannot make headway unless you understand what has come before, and work *with* the grain.  This extends to your advisor and their work.  While most students master deference, many never then learn to show *initiative*---by which we mean being entrepreneurial with their projects and resources. In my experience, advisors want to *advise*, not direct, not cajole, not hand-hold. Good advisees push intellectual boundaries (not professional ones), and are not afraid to innovate, try things and report back.  Good advisees bring output for advisor input; they bring (potential) solutions, not problems.  Something  (anything!) in draft form---articles, proofs, code---is a million times better than nothing done. Drafts allow students to ask specific questions and to get specific responses.  And those are the type you want.
 
