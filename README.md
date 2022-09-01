@@ -5,7 +5,7 @@ Arthur Spirling
 
 I am, generally speaking, against advice.  It is typically vague, unactionable or obvious. Sometimes all three.  Especially when unsolicited, its purpose is mostly not to help anyone, except the advice giver.  And for them, it is often narcissism parading as *noblesse oblige*.  The other thing I am against is selecting on the dependent variable. And while it is certainly concerning that everyone who sees that Wald Bomber meme eventually dies, the risk of being ignorant of it is non-trivial too.
 
-And yet, when combined, advice and selection bias can produce magical results.  And so it is here, as I elucidate the characteristics that unite *succesful* (interpret how you will) graduate students. I write it from the perspective of a Political Science/Data Science professor in a research intensive institution in the United States, but I hope that the tips are more general.  As always, what follows is an $n=1$ personal opinion and should be treated accordingly. Good luck!
+And yet, when combined, advice and selection bias can produce magical results.  And so it is here, as I elucidate the characteristics that unite *succesful* (interpret how you will) graduate students. I write it from the perspective of a Political Science/Data Science professor in a research intensive institution in the United States, but I hope that the tips are more general.  But obviously, what follows is an $n=1$ personal opinion and should be treated accordingly. Good luck!
 
 
 ### **Successful grad students...**
